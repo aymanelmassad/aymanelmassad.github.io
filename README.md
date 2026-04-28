@@ -1,0 +1,1 @@
+Academic/Business Manager with an MBA in Finance and 19+ years in investment banking and financial services. Experienced in managing portfolios, financial analysis, and strategic planning. Delivered client-focused solutions across the U.S., UAE, and Sudan, driving growth and satisfaction.
